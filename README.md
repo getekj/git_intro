@@ -1,2 +1,1 @@
 Joanna Getek
-14
